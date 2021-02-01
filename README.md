@@ -6,6 +6,8 @@
 
 # Thiago Alves
 
+[Linkedin](https://www.linkedin.com/in/trfalves)
+
 ---
 
 
